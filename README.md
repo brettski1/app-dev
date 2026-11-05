@@ -1,7 +1,5 @@
 ![Rocky](R.jpg)
 
----
-
 # 📍 Sypnosis
 In working-class Philadelphia, small-time club boxer and debt collector Rocky Balboa gets an unexpected chance at fame when current World Heavyweight Champion Apollo Creed decides to select a local underdog for an upcoming title match as a promotional gimmick. Recognizing the fight as a fleeting opportunity to break out of his bleak circumstances, Rocky commits to an intense training regimen under the guidance of former bantamweight fighter Mickey Goldmill. Alongside his budding romance with shy pet store clerk Adrian, Rocky prepares for the bout knowing that victory is unlikely, choosing instead to focus on staying on his feet for all fifteen rounds to prove his personal resilience and self-worth.
 > ADRIAAAAAN
